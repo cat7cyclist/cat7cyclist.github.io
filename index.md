@@ -1,5 +1,5 @@
-Here you can say lots of fun things about your site.
+Bicycling, tech, and travel - from a funny little man...
 
-Maybe say a some things about yourself.
 
-Or maybe what you plan to blog about.
+
+
